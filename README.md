@@ -1,0 +1,1 @@
+# veri_bilimi_yaz-kamp-_hafta3
